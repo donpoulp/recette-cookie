@@ -1,0 +1,1 @@
+Détailler le chocolat en pépites.
